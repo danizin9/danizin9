@@ -3,4 +3,6 @@
 <img src="https://media.tenor.com/DH3i2oS-PCAAAAAi/onepiece-one.gif" alt="a person is petting a cartoon character &#39;s head with their hand ."/>![image](https://github.com/user-attachments/assets/7f9e5366-1cd9-4a35-8a03-04b7cfcb1f72)
 <img src="https://media.tenor.com/7fBax0XfIcsAAAAi/giorno.gif" alt="a hand is holding a cartoon character &#39;s head ."/>
 ![image](https://github.com/user-attachments/assets/c73df566-6d20-4141-a193-b24eebdcaa01)
-<img src="https://media.tenor.com/BlfjaFHKcLUAAAAi/jojo-kakyoin.gif" alt="a person is putting a stuffed animal on a stuffed animal ."/>![Uploading image.png…]()
+<img src="https://media.tenor.com/BlfjaFHKcLUAAAAi/jojo-kakyoin.gif" alt="a person is putting a stuffed animal on a stuffed animal ."/>![image](https://github.com/user-attachments/assets/e32f3b30-eff1-419e-906e-b2685b529811)
+<img src="https://media.tenor.com/StgDY4b_IVsAAAAi/dragon-blox-ultimate-tempbow.gif" alt="a hand is holding a drawing of a man with long hair ."/>
+![Uploading image.png…]()
