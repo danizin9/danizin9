@@ -5,4 +5,6 @@
 ![image](https://github.com/user-attachments/assets/c73df566-6d20-4141-a193-b24eebdcaa01)
 <img src="https://media.tenor.com/BlfjaFHKcLUAAAAi/jojo-kakyoin.gif" alt="a person is putting a stuffed animal on a stuffed animal ."/>![image](https://github.com/user-attachments/assets/e32f3b30-eff1-419e-906e-b2685b529811)
 <img src="https://media.tenor.com/StgDY4b_IVsAAAAi/dragon-blox-ultimate-tempbow.gif" alt="a hand is holding a drawing of a man with long hair ."/>
+![image](https://github.com/user-attachments/assets/809e4c5b-1232-4b20-a3ce-a305e5c93406)
+<img src="https://media.tenor.com/C_-afVObuG0AAAAi/l-lawliet.gif" alt="a hand is covering a man &#39;s face in a pixel art ."/>
 ![Uploading image.png…]()
